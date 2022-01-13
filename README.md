@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NLion74
+- 👀 I’m interested in Linux and web hosting
+- 📫 You can reach me by sending a email to nlion7444@gmail.com or contacting me on discord using my tag NLion74#3339
